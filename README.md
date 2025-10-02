@@ -1,2 +1,4 @@
 # Future-Plans
-This channel is for future announcements!
+## Frontman Accouncement
+Our island has been destroyed by a betrayer ho
+
